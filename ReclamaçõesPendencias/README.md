@@ -1,0 +1,1 @@
+# Guarde nesta pasta documentos que lisam reclamações e tendências não atendidas no projeto
